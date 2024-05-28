@@ -1,5 +1,5 @@
 # 💫 About Me:
-Just call me Fikri or Abe<br>🔭 I’m currently working PT Waindo SpecTerra<br>Here's what you can see about me
+Just call me Fikri or Abe<br>🔭 
 
 
 ## 🌐 Socials:
